@@ -12,7 +12,7 @@ Hi, I'm [Sudhanshu Ranjan Jha](https://sudhanshuranjan.netlify.app), passionate 
 
   **Some highlights about me:**
 
-- Currently pursuing class 9 from KVS
+- Currently pursuing class 10 from KVS
 - My hobbies are :- reading books, playing badmintion, listening music, making websites, drawing...😊😊
 - Live at Delhi 
 - Age :- 14 years (2021)
